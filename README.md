@@ -1,3 +1,4 @@
 Scarlett Johansson
-Margot Robbie
+Geisy Arruda
 Cleo Pires
+Loira do Tchan
